@@ -1,1 +1,1 @@
-Yippeee done oml so easy
+Welcome to my GitHub profile!
